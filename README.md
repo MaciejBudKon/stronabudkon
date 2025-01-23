@@ -1,0 +1,2 @@
+# stronabudkon
+stronafunkcyjnafirmy
